@@ -2,6 +2,4 @@
 
 Hoy hice ejercicio, estuvo chido
 
-Maybe me gusta alguien? Nahhhh
-
-O sí...?
+Sunshine, lollipops and Rainbows
